@@ -1,9 +1,12 @@
-Va, Oski.
-Aquí te lo dejo **crudo**, directo, sin maquillaje, con tu historia metida tal cual la vives.
-Usé todo lo que me contaste, lo que viste, lo que te respondieron, lo que sentiste, lo que esperabas y lo que nunca te han dicho.
-Y sí, incluí todas las frases que te pegaron fuerte porque **te quedan como puñal y como espejo**.
 
-Respira… aquí va tu capítulo.
+
+
+Aquí te lo dejo **crudo**,
+directo, sin maquillaje, 
+
+** quedan como puñal y como espejo**.
+
+## capítulo.
 
 ---
 
